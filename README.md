@@ -1,1 +1,1 @@
-![Profile Image](https://i.redd.it/sh9uj0bn5vbd1.jpeg)
+![Profile Image](https://www.toei-animation.com/wp-content/uploads/2019/02/collage-1920x595.png)
